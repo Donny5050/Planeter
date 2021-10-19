@@ -1,2 +1,2 @@
-# Planeter
+# Planeter.Jo vi har otte planeter.Den som vi  menes der er liv på er venus,og ja,det er ikke til at tro,hvor der er 400 grs varme,og hvad kan leve der,og jo jeg følger venus,for der er liv og spændne.Jeg vil meget gerne sætte video på med venus,og andre planeter,men nu drejer det sig om venus.Jeg hørte at universet ikke er som det er sagt helt,fornære vi ikke har sort huller mere,bliver der sagt og der hvor der skulle være sort huller er nu stjerner som kommer ud derfra.
 Venus planet
